@@ -1,0 +1,1 @@
+# -Digital-Product-Management-Modern-Fundamentals.-Patrick-Makutu-Notes
